@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **officialsunnidev@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🌱 **I’m currently learning:** React Native and Also work on Project
+- 🌱 **I’m currently learning:** React Native and also working on Project
 - 📫 **How to reach me:** officialsunnidev@gmail.com
 - 😄 **Pronouns:** Sunny Dev
 
